@@ -1,5 +1,3 @@
-Hi, my name is Giovanni Pedrini
-I’m currently studying at UNIESI
+Hello, my name is Giovanni Pedrini
 
-Need to contact? Send an email to giovanni.pedrini05@gmail.com
-
+Check my page giovannipedrini.com.br
